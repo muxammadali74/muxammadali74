@@ -42,8 +42,8 @@
 ---
 
 ## 📫 Связь со мной
-- Telegram: [@muxammadali74](https://t.me/ali7432)
-- Email: muxammadali@example.com
+- Telegram: [@ali7432](https://t.me/ali7432)
+- Email: mpweb7432@gmail.com
 
 ---
 
